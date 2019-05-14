@@ -14,4 +14,4 @@ If so, please be in touch.
 
 I would like to hear from you.
 
-![alt text here](tumblr_m42zel2kX21rr34bqo1_1280.jpg)
+![alt text here](http://blog.avadirect.com/wp-content/uploads/2015/03/tumblr_m42zel2kX21rr34bqo1_1280.jpg)
